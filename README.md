@@ -1,2 +1,1 @@
-# LHR-NBminer41-
-LHR完全解锁NBMiner_41.0+驱动程序
+NBMiner_41.0完全解锁LHR100％算力+配套驱动+轻松矿工更新LHR解锁。点这里:https://pan.baidu.com/s/1Wy3sZuS5DNyXzlm4Ji4uVQ?pwd=1234
